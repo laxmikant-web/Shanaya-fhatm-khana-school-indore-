@@ -1,1 +1,0 @@
-# Shanaya-fhatm-khana-school-indore-
